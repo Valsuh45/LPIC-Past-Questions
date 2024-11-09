@@ -1,2 +1,1 @@
-# LPIC-Past-Questions
-For the GIS Trainees
+All the best with your Exams
